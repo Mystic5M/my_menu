@@ -6,3 +6,5 @@ It is being worked on frequently, have a suggestion? DM @melmothegreat62 on disc
 Any bugs also DM me.
 
 Please do not modify anything unless you know what your doing...
+
+But for now, ENJOY.
